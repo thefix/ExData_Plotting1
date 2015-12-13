@@ -1,0 +1,1 @@
+PNG files best viwed using Windows Photo Viwer or Paint
